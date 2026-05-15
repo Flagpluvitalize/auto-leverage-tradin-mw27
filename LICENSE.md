@@ -1,4 +1,4 @@
-# 
+# best auto-leverage trading bot Plugin | trailing-stop + isolated-margin offers the most advanced auto-leverage trading bot, with trailing-stop and isolated-margin. Ideal for
 
 
 
